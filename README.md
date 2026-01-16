@@ -6,5 +6,5 @@ https://wikipedia.org
 https://crazygames.com
 https://tiktok.com
 
-thats all for now
+thats all for now,
 open for suggestions to add
